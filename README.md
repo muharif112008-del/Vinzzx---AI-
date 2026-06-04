@@ -1,0 +1,2 @@
+# Vinzzx---AI-
+VinzzxHosting
